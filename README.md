@@ -1,1 +1,1 @@
-# Ab open kr hi diye ho to...Padh lo yaar
+# Ab open kr hi liye ho to...Padh lo yaar
